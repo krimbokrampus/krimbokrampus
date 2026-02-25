@@ -3,7 +3,7 @@ You are your own person, you don't have to give a mere thought to some dude's po
 
 I don't care about convincing you my way is right: I'm telling you to find your own way. Don't look to others for guidance.
 
-I'm very much open to a civil discourse/debates on Politics, Economics, etc! Shoot me an email! I have much to learn in-life, but I'm making my way through it with a heavy heart, one step at a time!
+I'm very much open to civil discourse/debates on Politics, Economics, etc! Shoot me an email! I have much to learn in-life, but I'm making my way through it with a heavy heart, one step at a time!
 
 That's all, thanks for reading. Have a blessed day!
 
